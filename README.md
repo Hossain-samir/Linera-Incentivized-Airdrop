@@ -27,6 +27,9 @@ Complete them all to earn **350+ points**:
 - Block, Beehive, Loaf, Boat, Tub, Blinker → **25 pts each**
 - Beacon, Clock, Glider Migration, Four Blinkers → **50 pts each**
 
+![Linera Puzzle Solutions](photo_2025-09-18_21-31-44.jpg)
+
+
 ---
 
 ## 📚 Life Quiz Answers (Save Time!)
